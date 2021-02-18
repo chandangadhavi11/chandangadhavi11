@@ -1,3 +1,5 @@
+![Photo](http://pixelprowess.com/i/pow-laptopgrab.jpg)
+
 ### Hi there 👋
 
 <!--
